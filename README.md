@@ -1,3 +1,7 @@
+<p align="center"><img width="836" height="333" alt="Sans titre 39_20250830173452" src="https://github.com/user-attachments/assets/0bb9a50e-8d4d-49f2-a70c-c0381bf6bc50"
+/>.</p>
+
+
 <p align="center"><img width="600" height="903" alt="Sans titre 35_20250829214504" src="https://github.com/user-attachments/assets/7e6e7141-0a0a-45ac-94bc-1edc33fd662f" />.</p>
 
 ‎‎‎‎‎ㅤㅤㅤ‎‎‎‎‎ㅤ‎‎ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎‎‎ㅤ‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎ㅤㅤㅤ‎‎‎‎‎ㅤ‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎ㅤㅤㅤ‎‎‎‎‎ㅤ‎‎ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=f24a9b&bar_color_cover=false)
